@@ -1,0 +1,1 @@
+# Tradingwith-karol-
